@@ -117,6 +117,6 @@ US-based product companies
 
 ## 📫 Contact
 
-Portfolio: https://stephanemensah.cv  
+Portfolio: https://waptik.xyz  
 LinkedIn: https://linkedin.com/in/waptik  
 Email: me@waptik.xyz
